@@ -12,4 +12,4 @@ serafim.eloisa@escola.pr.gov.br
 
 elohsantos250109@gmail.com
 
-![https://tenor.com/pt-BR/view/spiderman-gif-8099039](link GIF do Tenor)
+![](https://media1.tenor.com/m/5ixVKgX7mcQAAAAC/spiderman.gif)
